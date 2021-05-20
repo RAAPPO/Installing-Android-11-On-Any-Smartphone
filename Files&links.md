@@ -83,5 +83,5 @@ EMAIL:  techiehera10@gmail.com
 
 Our Website: https://www.techiehera.epizy.com/
  
-                         -TECHIE HERA
+                         -RAAPPO/Techie Hera
 Disclaimer:THE CREATORS WILL NOT BE RESPONISOBLE FOR THE ILLEGAL USE OF THE KNOWLEDGE OR THE CREATERS RESOURCES.
